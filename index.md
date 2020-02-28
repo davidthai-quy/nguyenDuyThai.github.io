@@ -32,7 +32,7 @@ __Trường đời__
 - ngõ 91 cầu diễn từ liêm hà nội
 
 ## Nghề Nghiệp
-<!-- ### Footer
+-Thực tập sinh
 
 Last updated: May 2013 -->
 
